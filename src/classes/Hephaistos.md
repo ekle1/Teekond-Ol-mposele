@@ -1,0 +1,1 @@
+Hephaistos is that one chill guy who actually isn't joking when he says that he has a new generation locked in his basement. Although he's a bit rusty, you can always rely on his machines. Hopefully.
