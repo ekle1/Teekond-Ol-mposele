@@ -1,0 +1,1 @@
+you think love from the first sight isn't possible? Aphrodite will prove you wrong. She could also show you what a true toxic relationship feels like, but you wouldn't notice it.
