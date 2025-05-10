@@ -1,1 +1,1 @@
-Don't play witd association with Ares, it's pointless, the only words you'll get as answers are: war, blood, kill and "You wish to have a taste of what a war against me would be like? Well, then, I shall oblige."
+Don't play word association with Ares, it's pointless, the only words you'll get as answers are: war, blood, kill and "You wish to have a taste of what a war against me would be like? Well, then, I shall oblige."
