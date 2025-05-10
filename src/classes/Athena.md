@@ -1,1 +1,1 @@
-Athena is the goddess of tactics and knowledge although she is one of the second generation of Olympians. Almost like that one super talented asian kid who is somehow always better than you.
+Athena is the goddess of tactics and knowledge although she is one of the second generation of Olympians. She is also totally conscious of the fact that compared to her, you are like a small spider.
