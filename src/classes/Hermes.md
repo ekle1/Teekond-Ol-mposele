@@ -1,1 +1,1 @@
-He is the god of trickery, stealing, running and messages. Oh and also cheating ofcourse, in card games, on tests, and also in relationship, because, afterall, that's how he was born.
+He is the god of trickery, stealing, running and messages. He will deliver the gods the exact words you say, although he will change them a bit to his liking.
