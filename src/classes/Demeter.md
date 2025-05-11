@@ -1,0 +1,1 @@
+Imagine nature as a person, it's all alive and it's food and water and everything we need for life, but sometimes it can also be rainy qnd sad and cold and dangerous. Now imagine that second part as a goddess, that goddess is Demeter.
